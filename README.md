@@ -1,0 +1,1 @@
+**The Faust research institute is an intelligence engineering organization, as it is a platforms provider; psychological, sociological, economical, technical enterprise experiments executed through controlled systems & eventualities that would otherwise be naturally stochastic. All research approached with absolute bare minimum in capital and resources.**
